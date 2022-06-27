@@ -1,6 +1,6 @@
 #hi, I'm violet lumine!
 ##I’m interested in kpop, anime and drawing
-###I’m currently learning japanese and to play guitar
+###I’m currently learning codes and stuff
 ####💞️ I’m looking to collaborate on art in general 
 #####📫 How to reach me @vlt-lumine :)
 
